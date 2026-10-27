@@ -1,4 +1,4 @@
-# Hey Everyone! I'm [padmasri Srimatkilambi](https://github.com/skpadmasri) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
+# Hey Everyone! I'm [Padmasri Srimatkilambi](https://github.com/skpadmasri) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
 
 
 # 👩‍💻 About Me:
